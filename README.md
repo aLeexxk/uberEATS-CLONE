@@ -1,1 +1,1 @@
-# uberEATS-CLONE
+# It will be updated periodically
